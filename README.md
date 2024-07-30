@@ -9,8 +9,4 @@ Você pode entrar em contato comigo 📫
 
 davihe0305@gmail.com
 
-![https://tenor.com/pt-BR/view/cr7-cristiano-ronaldo-cristiano-ronaldo-manchester-united-cristiano-ronaldo-celebration-celebration-gif-23707971](link)
-
-
-
-
+![image](https://github.com/user-attachments/assets/d0d28f02-800d-4f2b-abad-b357e46d3dc6)
